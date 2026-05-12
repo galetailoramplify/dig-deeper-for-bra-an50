@@ -1,4 +1,4 @@
-#  
+#  dig deeper for brainrots underground Scripts offers the most advanced dig deeper for brainrots Script, with invisibility and auto-heal. Perfect for
 
 
 
